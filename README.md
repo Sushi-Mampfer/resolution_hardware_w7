@@ -1,0 +1,1 @@
+# resolution_hardware_w7
